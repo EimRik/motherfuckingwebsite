@@ -1,1 +1,1 @@
-Projet 1 création du Motherfuckingwebsite.
+**Projet 1** : création du Motherfuckingwebsite.
